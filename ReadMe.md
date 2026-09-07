@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Estou trabalhando atualmente em Logística/AssistenteTécnico<br>🤝 Estou procurando desenvolvimento <br>🌱 Atualmente estou aprendendo<br>💬 Pergunte-me sobre <br>⚡ Curiosidade
+🔭🤝 procurando desenvolvimento <br>🌱 Atualmente estou aprendendo<br>💬 Pergunte-me sobre <br>⚡ Curiosidade
 
 
 ## 🌐 Socials:
